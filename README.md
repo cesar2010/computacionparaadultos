@@ -1,2 +1,0 @@
-# computacionparaadultos
-computación a domicilio
